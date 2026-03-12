@@ -58,7 +58,7 @@ Fuera del mundo de la programación también disfruto de:
 Si quieres contactar conmigo o conocer más sobre mi perfil profesional:
 
 🔗 **LinkedIn**  
-https://www.linkedin.com/in/ivan-escudero-pedraza-6926b82a6/
+[Mi LinkedIn](https://www.linkedin.com/in/ivan-escudero-pedraza-6926b82a6/)
 
 ---
 
